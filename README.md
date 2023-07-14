@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @BillyWatsonn
+- 👀 I’m interested in schedule
+- 🌱 I’m currently learning java
+- 📫 How to reach me walllacepeter@gmail.com
